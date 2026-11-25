@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👻💀 About Me:
 A technology enthusiast, Computer Engineering graduate, and creative problem solver passionate about innovation, AI, software development, and digital experiences. I enjoy transforming ideas into meaningful solutions, exploring emerging technologies, and building communities. Driven by curiosity, creativity, and continuous learning, I aim to create an impact through technology and leadership.
 
 
